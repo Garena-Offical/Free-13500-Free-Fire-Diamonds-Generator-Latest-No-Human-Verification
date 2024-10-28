@@ -1,4 +1,4 @@
-# (Free-13500💎-Free-Fire-Diamonds-Generator-Latest-No-Human-Verification)
+# Free-13500💎-Free-Fire-Diamonds-Generator-Latest-No-Human-Verification
 
 Free 13500💎 Fire Diamonds Generator Another mobile online is called the Free Fire Diamonds Generator. This mobile lets you earn real money using the in-game currency.
 
@@ -20,7 +20,7 @@ Free Fire Diamonds Generator 2024 is a software program that claims to be able t
 
 
 
-# (Free-13500💎-Free-Fire-Diamonds-Generator-Latest-No-Human-Verification)(https://tinyurl.com/freedaimonds24)
+# [Free-13500💎-Free-Fire-Diamonds-Generator-Latest-No-Human-Verification](https://tinyurl.com/freedaimonds24)
 
 **[🔴► CLICK HERE TO GET FREE DAIMOND💎](https://tinyurl.com/freedaimonds24)**
 
